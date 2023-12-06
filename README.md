@@ -5,3 +5,8 @@
 ##### Mochamad Idris
 ### NIM
 ##### G.111.21.1989
+
+### Diedit Oleh :
+##### Gibran Al Hakim Iskandar
+### NIM
+##### G.131.22.0023
